@@ -7,7 +7,7 @@ If you want to see what I'm up to:
 
 ["Blog"](https://world.hey.com/jannis)
 
-[X](https://x.com/home)
+[X](https://x.com/jannisdust)
 
 [LinkedIn](https://www.linkedin.com/in/jannisdust/)
 
