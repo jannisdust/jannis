@@ -4,6 +4,7 @@
 I have a weak spot for physics and am currently working hard in the intersection of atoms x bits.
 
 If you want to see what I'm up to:
+
 ["Blog" -> ](https://world.hey.com/jannis)
 
 [X -> ](https://x.com/home)
